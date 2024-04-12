@@ -1,0 +1,1 @@
+Página de compra Aplle Watch com ícones de mudança de cores e tamanhos, sendo 5 cores e dois tipos de tamanho, 3 imagens ilustrativas onde mostra o relogio(parte da frente) a pulseira e relógio como um todo, sempre mudando as cores que forem escolhidas
